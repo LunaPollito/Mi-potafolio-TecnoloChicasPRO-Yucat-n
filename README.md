@@ -14,4 +14,4 @@ JS
 
 Si estas interesad@ en colaborar con proyectos, oportunidades laborales e iniciativas, contáctame.
 
-© 2023 Malinali (Programa Technolochicas PRO)
+© 2023 Christi (Programa Technolochicas PRO)
